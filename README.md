@@ -1,4 +1,4 @@
-Know More Scrolling
+**Know More Scrolling**
 
 Like many, social media apps like Instagram offer hours of short-form content catered to user preferences designed to glue user's to their devices. I am sick and tired of wasting my time doing this, but I know that it is a hard habit to break.
 
